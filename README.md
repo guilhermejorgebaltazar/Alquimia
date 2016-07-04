@@ -18,9 +18,7 @@ pólen por mês em ótimas condições ambientais e de manejo
 Se calcularmos 5 Kg com 30 melgueiras em um ano teríamos aproximadamente 1800 Kg de pólen
  
 Como realizar uma venda fechada para estabilizar o fluxo de caixa ?
- 
-No Cartase provavelmente retornaria o investimento aos financiadores em um ano após a implementação do projeto
- 
+
 Outras possibilidades !!!
  
 Alguma empresa querer tocar o projeto ambiental (arrendar a área) e utilizar como bandeira (uma estação experimental)
