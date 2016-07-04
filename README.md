@@ -13,11 +13,9 @@ Com a implementação de apiário
 Pense nisso !!!
 
 Essa propriedade tem em seu entorno mais de 200 alqueires de mata atlântica, cada melgueira rende cerca de 5 a 7 Kg de
-pólen por mês e em ótimas condições ambientais e de manejo pode chegar a 20 Kg/mês
+pólen por mês em ótimas condições ambientais e de manejo
  
 Se calcularmos 5 Kg com 30 melgueiras em um ano teríamos aproximadamente 1800 Kg de pólen
- 
-Mantendo o valor de mercado atual em 80 reais o Kg no varejo teríamos um retorno de R$ 144.000,00 em um ano
  
 Como realizar uma venda fechada para estabilizar o fluxo de caixa ?
  
