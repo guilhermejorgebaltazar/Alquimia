@@ -17,7 +17,7 @@ pólen por mês e em ótimas condições ambientais e de manejo pode chegar a 20
  
 Se calcularmos 5 Kg com 30 melgueiras em um ano teríamos aproximadamente 1800 Kg de pólen
  
-Mantendo o valor de mercado atual em 80 reais o Kg no varejoteríamos um retorno de R$ 144.000,00 em um ano
+Mantendo o valor de mercado atual em 80 reais o Kg no varejo teríamos um retorno de R$ 144.000,00 em um ano
  
 Como realizar uma venda fechada para estabilizar o fluxo de caixa ?
  
