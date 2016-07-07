@@ -32,10 +32,3 @@ Alimentação das melgueiras - R$ 7.500,00/ano
 Funcionários: R$ 208.000,00/ano
 Cooperação Técnica: Dependente do investidor
 http://abecaapis.blogspot.com.br/2009/02/saiba-mais-e-veja-as-utilidades-do.html
- 
-
- 
-Alguma empresa me contratar como consultor ambiental e eu tocar o projeto como sendo experimental e utilizar de automação para controle de produção
-( válvulas, sensores, biodigestores, energia eólica e hídrica, monitoramento on line)
- 
-Necessito de investidores !!!
